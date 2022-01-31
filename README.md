@@ -1,6 +1,6 @@
 Hello We are The Little Rags,
 However you may of heard of us we are a group of girls that have made a store.
-As if right now (things will change so stay posted) we sell:
+As of right now (things will change so stay posted) we sell:
 Galazy Bottles,
 Friendship Bracelets,
 Stress Balls,
